@@ -1,0 +1,1 @@
+take hot water, magginoddles and maggimasala, now boil and mix them, wait 2 minutes and your maggi is ready
